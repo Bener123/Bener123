@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋因过竹院逢僧话，偷得浮生半日闲。👋
 
 <!--
 **Bener123/Bener123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
